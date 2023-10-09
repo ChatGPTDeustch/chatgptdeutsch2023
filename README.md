@@ -1,4 +1,4 @@
-# chatgptdeutsch2023
+# ChatGPTDeutsch2023
 ChatGPT Deutsch: Die Zukunft der künstlichen Intelligenz im Chatformat
 Künstliche Intelligenz (KI) hat in den letzten Jahren erstaunliche Fortschritte gemacht und ist aus unserem täglichen Leben nicht mehr wegzudenken. Eine aufregende Entwicklung in diesem Bereich ist ChatGPT Deutsch, eine leistungsstarke KI-Plattform, die speziell auf die Bedürfnisse der deutschsprachigen Nutzer zugeschnitten ist. Kostenloser Zugang unter: <a href="https://https://chatgptdeutsch.org//">ChatGPT</a>
 
